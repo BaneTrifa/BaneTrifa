@@ -19,7 +19,7 @@
 
 - A passionate Computer Science student
 - Currently engaged in self-directed learning within the field of Machine Learning.
-- I’m currently open for an Intern or a new job opportunity
+- I’m currently open for an Intern
 
 <br><br>
 
