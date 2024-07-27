@@ -16,7 +16,7 @@
 <br>
 
 - A passionate Software Engineer.
-- I’m currently open for an Intern or a Job opportunity.
+- I’m currently open for a Job opportunity.
 
 <br><br>
 
